@@ -1,1 +1,2 @@
-# mini-christmas-project
+# **Christmas 2024 Mini Project 🎄**
+[ON GOING}
